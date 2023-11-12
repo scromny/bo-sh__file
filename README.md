@@ -1,1 +1,1 @@
-# bo-sh__file
+4ta sectionni qildm modal qoldi
